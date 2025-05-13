@@ -1,4 +1,4 @@
-# Affor Ai Coupon Code GET55 | Get To Exclusive 55% off Best Coupon Code 
+# Affor Ai Coupon Code GET55 | Get To Exclusive 75% Off 
 
 
 
@@ -6,7 +6,7 @@
 
 
 
-#  Here is coupon code:- GET55
+#  Here is coupon code:  GET55
 
 
 
